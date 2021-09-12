@@ -4,8 +4,6 @@
 
 **First Step**
 ----------
-*Click <a href="https://www.youtube.com/AronTnXofficial">here</a> and Subscribe 2 <a href="https://www.youtube.com/AronTnXofficial">ARON-TN</a> .. ^_^*
-----------
 <h2>Tool</h2>
 <img src="https://i.imgur.com/l9ovfpY.jpg" style="max-width:100%;">
 
